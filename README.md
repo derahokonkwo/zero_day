@@ -1,1 +1,1 @@
-*strong*
+strong in hope
